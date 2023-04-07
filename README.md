@@ -1,0 +1,2 @@
+# Scizers_Technologies_LLP_Assignment
+assignment for Scizers Technologies
